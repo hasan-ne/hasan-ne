@@ -41,7 +41,7 @@ I work at the intersection of **nuclear reactor physics** and **machine learning
 ---
 
 ## 📫 Connect With Me
-- LinkedIn: https://www.liyou/mhm-111
+- LinkedIn: https://www.linkedin.com/in/mhm-111/
 - Email: mahmudul.du.ne8@gmail.com  
 
 ---
